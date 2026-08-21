@@ -1,4 +1,4 @@
-# Free
+# \#Free
 
 [obsidian](https://obsidian.md/)
 
@@ -7,7 +7,7 @@
 [Zim](https://zim-wiki.org/) - A Desktop Wiki
 
 
-# Open
+# \#Open
 
 [GoatFoo](https://goatpr0n.farm/about/)
 
