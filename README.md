@@ -11,4 +11,6 @@
 
 [GoatFoo](https://goatpr0n.farm/about/)
 
-[Deray嘎嘎嘎](https://www.deray.org/)
+[Deray](https://www.deray.org/)
+
+[scz](https://scz.617.cn/)
