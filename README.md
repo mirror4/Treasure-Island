@@ -15,4 +15,4 @@
 
 [scz](https://scz.617.cn/)
 
-[thekiller](https://thekiller.net/)
+[Steve the Killer](https://thekiller.net/)
