@@ -16,3 +16,7 @@
 [scz](https://scz.617.cn/)
 
 [Steve the Killer](https://thekiller.net/)
+
+[tombkeeper](https://tombkeeper.io/)
+
+[Tianchun Binghe](https://www.sina.cn/media/1929185323)
