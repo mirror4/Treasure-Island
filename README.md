@@ -6,6 +6,8 @@
 
 [Zim](https://zim-wiki.org/) - A Desktop Wiki
 
+[Disc Image Studio](https://github.com/JiaFeiMiao-K-Cat/DiscImageStudio)
+
 
 # \#Open
 
